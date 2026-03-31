@@ -1,0 +1,18 @@
+---
+title: The Last Time I Saw the Ocean
+type: journal
+date: 2021-08-14
+tags: ocean, longing, summer, grief
+---
+
+I drove three hours alone to get there. The parking lot was nearly empty by the time I arrived — it was past 6pm, golden hour turning everything amber and rust. I took off my shoes before I even reached the sand, wanting to feel the transition under my feet.
+
+The water was cold. It always surprises me how cold it is, even in August, even after all these years of knowing. I stood at the edge for a long time, letting the foam swallow my ankles, watching the horizon like it owed me something.
+
+I had been thinking about you the whole drive. Not with sadness exactly — more like the way you think about a house you grew up in that no longer exists. Something that shaped you that you can no longer return to.
+
+A pelican flew very low over the water, barely skimming the surface. I thought about how it trusts itself completely to that thin space between sky and sea.
+
+I didn't cry. I just stood there until the light was almost gone, and then I walked back barefoot through the cold sand, carrying my shoes, feeling something loosen in my chest that I hadn't known was tight.
+
+On the drive home I stopped at a gas station and ate a bag of Fritos in the parking lot, watching moths circle the fluorescent lights. It felt holy somehow.
